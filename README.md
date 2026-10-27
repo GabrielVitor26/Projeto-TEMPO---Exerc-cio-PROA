@@ -1,1 +1,1 @@
-# Projeto-TEMPO---Exerc-cio-PROA
+# Projeto-TEMPO---Exercicio-PROA
